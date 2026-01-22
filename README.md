@@ -5,4 +5,4 @@
 All of this is free and open-source. The example link is https://www.tjnfctag.com/GenerateRFIDonlinegenerator/
 
 
-<a target="_blank" href="https://www.tjnfctag.com/ntag-213-nfc-review-card-sticker/%22%00 rel=%22follow">ntag 213 nfc review card sticker</a>
+<a target="_blank" href="https://www.tjnfctag.com/ntag-213-nfc-review-card-sticker/%22?%00rel=%22follow">ntag 213 nfc review card sticker</a>
